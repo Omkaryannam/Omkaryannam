@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Omkaryannam
+- 👀 I’m interested in programming, making creative things.
+- 🌱 I’m currently learning BSC(COMPUTER SCIENCE)
+- 💞️ I’m looking to collaborate on nothing, i am here to explor new things and to learn about them.
+- 📫 How to reach me, email me:- omkar.yannam189@gmail.com
+- 😄 Pronouns: No gay shit, i am a "MAN". 
+- ⚡ Fun fact: I can learn new things easily if i work a little hard on it!
